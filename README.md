@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  🌍 Based in Lima, Peru &nbsp;·&nbsp; 🎓 B.A. Global Economics &amp; Business Management @ THI &nbsp;·&nbsp; 🗣️ DE (native) · EN (C1) · ES (B1)
+  🌍 Based in Stuttgart, Germany &nbsp;·&nbsp; 🎓 B.A. Global Economics &amp; Business Management @ THI &nbsp;·&nbsp; 🗣️ DE (native) · EN (C1) · ES (B1)
 </p>
 
 ---
